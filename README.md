@@ -1,1 +1,1 @@
-# ak12saini.github.io
+# ayurAIveda.com
